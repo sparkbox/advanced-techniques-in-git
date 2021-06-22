@@ -1,4 +1,4 @@
-# LEt it Go
+# Let it Go
 
 Let it go, let it go\
 Can't hold it back anymore\
